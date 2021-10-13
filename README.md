@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @CooperBailey
 - 👀 I’m interested in gardening and gaming.
-- 🌱 I’m currently learning how to improve as a chef.
+- 🌱 I’m currently learning how to code! Any tips apprereciated.
 - 💞️ I’m looking to collaborate on anything. :)
-- 📫 How to reach me twitter @CooperLlama
+- 📫 You can reach me on twitter @CooperLLama.
 
 
 
